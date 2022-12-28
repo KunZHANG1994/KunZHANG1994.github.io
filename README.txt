@@ -1,3 +1,3 @@
-Q: How do I know somethin is ture?
-https://zhangkun1994.github.io/
-A:Do it by yourself and prove it
+利而不害，为而不争。
+
+https://kunzhang1994.github.io/
